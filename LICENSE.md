@@ -1,4 +1,4 @@
-
+Enhance your Goose VPN experience with professional Goose VPN Connector | no-logs-policy + geo-unblocking, the #1 connector. Includes no-logs-policy and geo-unblocking for a safer
 
 
 
